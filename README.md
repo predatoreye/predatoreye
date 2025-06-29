@@ -1,5 +1,6 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=bureika&color=205f53&label=❤︎++&base=200&abbreviated=true)    
 [hi friends](https://rentry.co/dagr)
 
 
