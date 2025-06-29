@@ -1,3 +1,3 @@
 <div align="center">
 
-[hi friends](https://rentry.co/48h)
+[hi friends](https://rentry.co/dagr)
